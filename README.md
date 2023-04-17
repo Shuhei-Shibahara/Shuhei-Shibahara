@@ -1,1 +1,5 @@
 # Shuhei-Shibahara
+🏂: Check out my most recent project: Sick Snow
+🌱 I’m currently learning Python!
+💙 In my free time, I enjoy spending time with friends and family, playing tennis and bowling, and watching ani,e.
+📫 How to reach me: shibahara.shuhei@gmail.com or LinkedIn
